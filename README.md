@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @GabrielGalacci
+- 👋 Hi, I’m Gabriel Galacci Maldonado From Brazil
 - 👀 I’m interested in continuos learning
 - 🌱 I’m currently learning DevOps
 - 💞️ I’m looking to collaborate on helping others where i can
