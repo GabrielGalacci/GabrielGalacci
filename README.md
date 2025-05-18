@@ -1,4 +1,4 @@
-# [Gabriel Galacci Maldonado](https://www.linkedin.com/in/gabriel-galacci-maldonado/)
+# [Gabriel Galacci Maldonado](https://www.linkedin.com/in/gabriel-galacci-maldonado/) :nerd_face:
 ***32 Anos - Santo André / SP***
 
 ## Perfis
@@ -20,7 +20,7 @@
 
 ## Sobre
 
-### A Jornada de Gabriel Galacci:nerd_face:: Entre Códigos, Castelos e Canções
+### A Jornada de Gabriel Galacci: Entre Códigos, Castelos e Canções
 
 > Em um reino chamado Santo André, nasceu um herói dos tempos modernos: Gabriel Galacci Maldonado. Desde cedo, ele percebia que o mundo ao seu redor era feito de muito mais do que apenas o visível. Enquanto outras crianças sonhavam em ser astronautas ou jogadores de futebol, Gabriel empunhava seu controle de Nintendo 64 como uma espada mágica, explorando os reinos do cogumelo com Mario, enfrentando as sombras com Link, e esgueirando-se como um espião em missões secretas com 007 GoldenEye.
 
